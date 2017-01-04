@@ -1,6 +1,8 @@
 # Trip-to-China
 #중국여행 9박10일 루트 정리
 중국 서안(3박4일)-난징(3박4일)-상해(3박4일) 
+#![](https://github.com/GeekInTheClass/Trip-to-China/blob/master/스크린샷%202017-01-04%2012.18.31.png)
+
 
 ##중국 중부 지방 
 ##1. 서안
@@ -37,7 +39,4 @@
 난징동루 추천 
 
 
-##4. 항공권
-
-![](https://github.com/GeekInTheClass/Trip-to-China/blob/master/스크린샷%202017-01-04%2012.18.31.png)
 
