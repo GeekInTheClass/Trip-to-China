@@ -8,8 +8,8 @@
 
 ###관광지
 병마용갱
-![](http://cfs6.blog.daum.net/image/35/blog/2007/10/19/23/03/4718b932b3db5&filename=병마총.jpg)
-아방궁
+###![](http://cfs6.blog.daum.net/image/35/blog/2007/10/19/23/03/4718b932b3db5&filename=병마총.jpg)
+###아방궁
 서안성벽
 
 ###숙소위치
