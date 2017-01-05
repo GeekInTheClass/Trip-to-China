@@ -16,6 +16,14 @@
 
 ### ![](http://cfs6.blog.daum.net/image/35/blog/2007/10/19/23/03/4718b932b3db5&filename=병마총.jpg)
 
+진시황릉 - 병마용근처에 위치
+
+화청지 - 서안역에서 游5번 버스 탑승, 50분 소요
+
+대얀탑 - 삼장법사가 서쪽으로 경서찾으러 갈때 출발지였음.
+
+
+
 아방궁 - 서안역에서 지하철로 汉城路역 가서 729路버스로 환승, 90분 소요. 38위안
 
 ![](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcTBYvHLV1K6lE8rJL3tDKAsRjRv8uK7KNOnc26rbeBjsuHPOfODpA)
